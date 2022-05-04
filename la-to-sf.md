@@ -53,7 +53,6 @@
 		- hearst castle, 1hour guided tour
 			- [$30/adult tickets, probably do GRAND ROOMS TOUR](https://www.reservecalifornia.com/Web/Activities/HearstCastleTours.aspx)
 		- salmon creek trail to salmon creek falls
-			- 
 	- big sur
 		- julia pfeiffer burns state park, $10 entrance
 			- hiking: mcway falls, 0.5 miles rt
