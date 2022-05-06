@@ -20,7 +20,7 @@
 - #maybe 1200-2100: [mcconnell's fine ice creams](http://www.mcconnells.com/)
 	- 728 State St, Santa Barbara, CA 93101
 - [other stuff](https://www.sbadventureco.com/blog/30-things-to-see-in-santa-barbara/)
-- NIGHT => airbnb/hotel around slo/edna
+- NIGHT => airbnb/hotel around slo/edna/grover beach
 
 ## wed may 18
 - san luis obispo/paso robles wine tasting or beaches
@@ -55,7 +55,7 @@
 		- 5695 Bridge St., Cambria, California 93428
 		- $120 per rider
 		- call for reservations: 805-975-7332
-- NIGHT => airbnb arouns slo/edna
+- NIGHT => airbnb arouns slo/edna/grover beach
 	- ~~[Avila Beach Resort | Sycamore Mineral Springs Resort in SLO (sycamoresprings.com)](https://www.sycamoresprings.com/)~~
 		- ~~like 800 a night for a 2rm suite~~
 	- ~~[Hotel — Madonna Inn | World-Famous San Luis Obispo Hotel](https://www.madonnainn.com/hotel)~~
@@ -64,7 +64,7 @@
 ## thu may 19
 - moonstone beach 6216 Moonstone Beach Dr, Cambria, CA 93428
 - san simeon
-	- hearst castle, 1hour guided tour
+	- hearst castle, 1hour guided tour, reservations sell out ~3days in advance
 		- [$30/adult tickets, probably do GRAND ROOMS TOUR](https://www.reservecalifornia.com/Web/Activities/HearstCastleTours.aspx)
 	- salmon creek trail to salmon creek falls
 - big sur
