@@ -10,8 +10,8 @@
 
 ## tues may 17
 - depart LA in morning/after lunch for santa barbara
-- ~~1400 => depart LA after lunch~~
--Santa Barbara County Coutrhouse before 5pm for some really good views
+- ~~1400 => depart LA after lunch~~  
+- Santa Barbara County Coutrhouse before 5pm for some really good views
 	- 1100 Anacapa Street, Santa Barbara, CA 93121
 - #maybe check out santa barbara mission (known as "QUEEN OF MISSIONS")
 	- 2201 Laguna Street, Santa Barbara, CA 93105
@@ -29,10 +29,10 @@
 		- **1000-1600**: 1653 Maxwellton St, San Luis Obispo, CA 93401
 			- $20 mixed flight
 			- gourmet deli for lunch, too [menu](https://sextantwines.com/wp-content/uploads/2021/11/Gourmet-Deli-Menu-11-2021.pdf)
-		- ~~paso robles Open Daily, 10am–5pm 2324 CA-46, Paso Robles, CA 93446
-	- ~~biddle ranch vineyard $25 testing flight (waived with 2btl purchase) MThFSS
-		- ~~slo 2050 Biddle Ranch Road
-	- ~~sloma 1010 Broad St MThFSS
+		- ~~paso robles Open Daily, 10am–5pm 2324 CA-46, Paso Robles, CA 93446~~
+	- ~~biddle ranch vineyard $25 testing flight (waived with 2btl purchase) MThFSS~~
+		- ~~slo 2050 Biddle Ranch Road~~
+	- ~~sloma 1010 Broad St MThFSS~~
 	- #maybe #not sycamore [mineral springs](https://www.sycamoresprings.com/hot-tubs/oasis-waterfall-lagoon)
 		- 1215 Avila Beach Drive, California, San Luis Obispo 93405
 		- $17.50-22.50 per person per hour
@@ -68,6 +68,9 @@
 		- [$30/adult tickets, probably do GRAND ROOMS TOUR](https://www.reservecalifornia.com/Web/Activities/HearstCastleTours.aspx)
 	- salmon creek trail to salmon creek falls
 - big sur
+	- lunch at [NEPENTHE](https://www.nepenthe.com/menu)
+			- 1130 open, first come first serve, no reservations  
+			- ~~no can consider deetjen, closed wed/thurs~~
 	- julia pfeiffer burns state park, $10 entrance
 		- hiking: mcway falls, 0.5 miles rt
 	- salmon creek trailhead
@@ -83,9 +86,9 @@
 	- monterey bay aquarium?
 	- point sur lighthouse? walking-tours on wednesday
 - AFTERNOON
-	- lunch at [NEPENTHE](https://www.nepenthe.com/menu)
+	- back down to big sur for lunch at [NEPENTHE](https://www.nepenthe.com/menu)
 		- 1130 open, first come first serve, no reservations
-		- ~~no can consider deetjen, closed wed/thurs~~
+		- can consider deetjen, closed wed/thurs
 	- Rancho Del Oso Nature and History Center (on CA-1)
 		- marsh trail -- .8km, 20min
 			- This trail is perfect for families looking for a short hike to explore the marsh and Waddell Creek, or for birders seeking to find the next bird on their list. The Marsh Trail is teeming with life. Rabbits are frequently seen scurrying off the trail, while dragonflies swoop over the water, and birds flit among the willows growing near the creek. Due to the abundance of water, flowering plants have an especially long season here. The Marsh Trail connects the Rancho del Oso Nature and History Center to the Ranger Station by a bridge over Waddell Creek.
