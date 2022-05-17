@@ -83,10 +83,11 @@
 
 ## fri may 20
 - MORNING
-	- monterey bay aquarium?
-	- point sur lighthouse? walking-tours on wednesday
+	- ~~monterey bay aquarium?~~ nah $50pp while Atlanta is only 40
+	- ~~point sur lighthouse? walking-tours on wednesday~~ closed Thurs Fri
+	- drive 17mile pebble beach
 - AFTERNOON
-	- back down to big sur for lunch at [NEPENTHE](https://www.nepenthe.com/menu)
+	- maybe back down to big sur for lunch at [NEPENTHE](https://www.nepenthe.com/menu)
 		- 1130 open, first come first serve, no reservations
 		- can consider deetjen, closed wed/thurs
 	- Rancho Del Oso Nature and History Center (on CA-1)
@@ -94,6 +95,7 @@
 			- This trail is perfect for families looking for a short hike to explore the marsh and Waddell Creek, or for birders seeking to find the next bird on their list. The Marsh Trail is teeming with life. Rabbits are frequently seen scurrying off the trail, while dragonflies swoop over the water, and birds flit among the willows growing near the creek. Due to the abundance of water, flowering plants have an especially long season here. The Marsh Trail connects the Rancho del Oso Nature and History Center to the Ranger Station by a bridge over Waddell Creek.
 	- ~~SUPER CLOSED STILL big basin redwoods state park (62+ $9 vehicle day-use fee)~~
 		- ~~redwood loop trail -- 1km flat trail~~
+	- Santa Cruz?
 - NIGHT => palo alto
 
 ## sf
